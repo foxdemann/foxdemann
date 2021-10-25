@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: $0$i$ka
 -->
+![отдавай трусы_FotoSketcher 2](https://user-images.githubusercontent.com/89973922/138641963-df7f7538-4f25-418c-8d03-54460d6e9f58.jpg)
